@@ -1,13 +1,31 @@
-# The Problem With Social Media
+### My Audience
+My wife
+My son
 
-For me, the problem I've always had with social media is that people feel the need to respond. It's a paradox that I still have a hard time coming to terms with, even today. I think maybe that's because my generation was constantly warned about the dangers of brainwashing when we were kids that we actually developed defenses against it.
+### My Story
 
-Imagine our surprise when 10 years later most the world was brainwashed but it wasn't video games, and it wasn't the internet. It was cable tv, the newspapers, the radio, and worst of all social media.
+I've never been great at starting. I might argue that it's the meant to be hard to start things. But for now I'll save the lectures because introduction is in order. My name is Kendal James.
 
-For me though, I never really was in any real danger because I'm protected...
+If you're reading this then that means for reason outside of the my own control I am unable to be there to pass on to you these things.
 
-**Insert photo of Force Field**
+The difference between the greatest human being who ever lived and the worst, physically wouldn't be very much at all. It comes down to actions.
 
-My wife describes it like this:
+The closest thing I have to religion in my life is **stoicism**.
 
-**Insert short video clip of Micah saying Kendal has the memory of goldfish and the attention of a golden retriever**
+##### The 4 Cardinal Virtues
+- Wisdom
+- Justice
+- Courage
+- Moderation
+
+Contrast that with cardinal orientations of consciousness from Carl Jung and you can become to see signs of what Richard Feynman would describe as the fabrics of god.
+
+> The first principle is that you must not fool yourself, and you're the easiest person to fool. - Richard Feynman
+
+What does that mean? Not fool yourself?
+
+1. Do not allow yourself to believe you're any different physiologically speaking than your fellow man. That path leads to ego.
+
+2. Do not allow yourself to believe that things happen all at once. There is without a doubt a discernible order within this universe but that order exists at a much more fundamental level than most people have the ability to grasp.
+
+Because you cant learn everything right at once. 
