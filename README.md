@@ -10,7 +10,7 @@ But that's a tangent and a distraction from the real issue. Why the fuck am I so
 
 The only explanation I really have is *anxiety*. And that emphasis isn't to down play the diagnosis because I know it's accurate, but it's just not useful information. Like I hear people say they just got diagnosed with anxiety and I imagine that means they just learned what the term *anxiety* means because it's a symptom not a fucking diagnosis... What the hell is causing me to feel this anxiety?
 
-I have zero reason saying, loudly and openly, that I am the greatest danger to the status quo on this planet alive.
+I have zero problem saying, loudly and openly, that I am the greatest danger to the status quo on this planet alive.
 
 So why can't I commit to a start? I don't know. I just know it's anxiety and the source is trying to keep from expressing myself.
 
