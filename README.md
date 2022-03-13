@@ -1,31 +1,21 @@
-### My Audience
-My wife
-My son
+# The First Step
 
-### My Story
+Probably the longest definable and visible affect of my overwhelming anxiety has been my inability to express myself publicly.
 
-I've never been great at starting. I might argue that it's the meant to be hard to start things. But for now I'll save the lectures because introduction is in order. My name is Kendal James.
+If you're in my circle you've probably heard me mention starting a youtube channel, or writing a book, or something similar at least once over the past 5 years. Many people have heard such talk on a nearly weekly basis for the better part of 3 years now... So what gives?
 
-If you're reading this then that means for reason outside of the my own control I am unable to be there to pass on to you these things.
+I mean yeah... I'm not known for my reliability. Thanks to Ray Dalio, the top 500 fortune companies probably also know about my less than stellar reliability lol. (lets be clear Ray's reliability isn't any better than mine)
 
-The difference between the greatest human being who ever lived and the worst, physically wouldn't be very much at all. It comes down to actions.
+But that's a tangent and a distraction from the real issue. Why the fuck am I so afraid of publishing my thoughts? I'm not afraid of sharing them in person. That much is certain.
 
-The closest thing I have to religion in my life is **stoicism**.
+The only explanation I really have is *anxiety*. And that emphasis isn't to down play the diagnosis because I know it's accurate, but it's just not useful information. Like I hear people say they just got diagnosed with anxiety and I imagine that means they just learned what the term *anxiety* means because it's a symptom not a fucking diagnosis... What the hell is causing me to feel this anxiety?
 
-##### The 4 Cardinal Virtues
-- Wisdom
-- Justice
-- Courage
-- Moderation
+I have zero reason saying, loudly and openly, that I am the greatest danger to the status quo on this planet alive.
 
-Contrast that with cardinal orientations of consciousness from Carl Jung and you can become to see signs of what Richard Feynman would describe as the fabrics of god.
+So why can't I commit to a start? I don't know. I just know it's anxiety and the source is trying to keep from expressing myself.
 
-> The first principle is that you must not fool yourself, and you're the easiest person to fool. - Richard Feynman
+But hang in there because I've finally picked a battle I can win. My subconsious may be strongest enough to keep me from committing to a youtube channel right this second. But a plain text based blog, with no SEO on a domain I've had parked for years with not even a social media account forward... yeah that's the battlefield I'll die or dominate on.
 
-What does that mean? Not fool yourself?
+Given a reasonable amount of time I can't communicate who I am here then I'm not who I think I am anyways.
 
-1. Do not allow yourself to believe you're any different physiologically speaking than your fellow man. That path leads to ego.
-
-2. Do not allow yourself to believe that things happen all at once. There is without a doubt a discernible order within this universe but that order exists at a much more fundamental level than most people have the ability to grasp.
-
-Because you cant learn everything right at once. 
+> "The journey of a thousand miles"
