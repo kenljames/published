@@ -18,4 +18,4 @@ But hang in there because I've finally picked a battle I can win. My subconsious
 
 Given a reasonable amount of time I can't communicate who I am here then I'm not who I think I am anyways.
 
-> "The journey of a thousand miles"
+> "The journey of a thousand miles starts with a single step -Chinese Proverb"
